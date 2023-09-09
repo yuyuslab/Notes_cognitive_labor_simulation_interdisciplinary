@@ -1,0 +1,2 @@
+# Notes_cognitive_labor_simulation_interdisciplinary
+Notes of cognitive_labor_simulation_interdisciplinary
